@@ -2,3 +2,6 @@ HEY!
 THIS IS MY CURRENT RESUME 
 HAVE A GOOD DAY!
 THANKS FOR LANDING ON MY GITHUB
+
+HERE IS THE DRIVE LINK TO MY RESUME:
+https://drive.google.com/file/d/1HxU3Xrl2gOUepVycKbUtIvMSHOfKtRhf/view?usp=sharing
