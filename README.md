@@ -4,4 +4,4 @@ HAVE A GOOD DAY!
 THANKS FOR LANDING ON MY GITHUB
 
 HERE IS THE DRIVE LINK TO MY RESUME:
-https://drive.google.com/file/d/1HxU3Xrl2gOUepVycKbUtIvMSHOfKtRhf/view?usp=sharing
+https://drive.google.com/file/d/1SOezU7bvegyg1QUPIvf5Tne0GCLZxK5q/view?usp=sharing
